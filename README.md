@@ -1,1 +1,0 @@
-# adamgrack.github.io
